@@ -1,0 +1,1 @@
+Perform daily activities
