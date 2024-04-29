@@ -1,3 +1,3 @@
 Perform daily activities
 
-Perfomr bridging monthly now onwards
+Perform bridging monthly now onwards
